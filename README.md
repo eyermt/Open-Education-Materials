@@ -57,4 +57,11 @@ https://github.com/o3de/o3de
 Government:  
 https://www.youtube.com/watch?v=lVxuQB1WJm8  
 
+
+
+
+To be sorted:
 http://saxifrageschool.org/
+https://open.edx.org/the-platform/use-cases/higher-education/
+
+https://awesomelists.top/#/
